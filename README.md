@@ -2,7 +2,7 @@
 ### Applied Mathematician | Computational Research Scientist | Numerical Modelling & Scientific Computing
 
 📍 Dublin, Ireland  
-📧 susamboral@gmail.com  
+📧 sboral1994@gmail.com  
 🔗 [LinkedIn](https://www.linkedin.com/in/susam-boral-655297269) |
 [Google Scholar](https://scholar.google.com/citations?user=lxZzGV8AAAAJ) |
 [ORCID](https://orcid.org/0000-0003-0590-5442)
